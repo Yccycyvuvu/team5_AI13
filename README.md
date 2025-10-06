@@ -1,1 +1,1 @@
-# Mariia-Mazur
+# Nazar Zankovych
